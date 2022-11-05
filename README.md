@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @tjgersho
+- 👀 I’m interested in building things that make life better on earth.
+- 💞️ I’m looking to collaborate on products that make a difference.
